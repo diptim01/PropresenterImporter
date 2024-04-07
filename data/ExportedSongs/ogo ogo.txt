@@ -1,0 +1,9 @@
+OGO OGO O
+EYIN BABA O
+ 
+EMI ADUPE MA FORI BALE
+MA YIN BABA
+ 
+oh ...
+ 
+Oh oh ....

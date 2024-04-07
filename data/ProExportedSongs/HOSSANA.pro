@@ -1,0 +1,24 @@
+HOSSANA (2X)
+ 
+HOSSANA IN THE HIGHEST
+ 
+ALL GLORY (2X)
+ 
+ALL GLORY TO  THE KING OF KINGS
+ 
+LORD WE LIFT UP
+YOUR NAME
+ 
+WITH OUR HEART
+FULL OF PRAISE
+ 
+BE EXALTED OH LORD OUR GOD
+ 
+HOSANNA IN THE HIGHEST
+ 
+Hossana Hossana
+ 
+Hossana Hossana
+Hosanna to the Lord
+ 
+You're worthy, You're worthy of our praise

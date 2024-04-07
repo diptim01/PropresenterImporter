@@ -1,0 +1,14 @@
+BABA, BABA, BABA, BABA O...
+(FATHER, FATHER, FATHER, FATHER...)
+ 
+GBO GBO OHUN TI MONI NI'O FIYIN O LOGO
+(I will praise YOU in Heaven with all that I have)
+ 
+BABA!! (FATHER!!)
+BABA BABA BABA MI LOKE BABA
+ 
+BABA LOKE BABA!
+(FATHER IN HEAVEN!)
+ 
+Somebody say BABA!
+(FATHER)

@@ -1,0 +1,8 @@
+Our GOD is an awesome GOD
+HE REIGNS FROM HEAVEN ABOVE
+ 
+WITH WISDOM, POWER AND LOVE
+OUR GOD IS AN AWESOME GOD
+ 
+He reigns,Yes He reigns
+He's an awesome GOD

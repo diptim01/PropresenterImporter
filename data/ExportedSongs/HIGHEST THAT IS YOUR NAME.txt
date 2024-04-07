@@ -1,0 +1,16 @@
+Highest  Highest Highest that is YOUR Name
+ 
+We rababa… Rababa… Rababa...
+ 
+We komole… komole…komole...
+ 
+EVERYBODY
+PRAISE THE LORD (3X)
+ 
+EVERYBODY RABABA (3X)
+ 
+EVERYBODY KOMO LE (3X)
+(EVERYBODY BEND DOWN AND DANCE)
+ 
+FAITHFUL FAITHFUL
+FAITHFUL THAT IS YOUR NAME

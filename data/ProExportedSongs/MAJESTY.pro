@@ -1,0 +1,39 @@
+ALL OF OUR DAYS
+WE GIVE YOU PRAISE
+ 
+AND SO WE COME WITH OUR HEART OF PRAISE
+YOU ARE THE LORD STRONG AND MAJESTY
+ 
+AND EXCELLENT
+IS YOUR NAME
+ 
+YOU ARE MY LORD
+MY SHEPHERD AND KING
+ 
+YOUR NAME IS EXALTED ABOVE ALL KINGS
+ 
+MAJESTY WORSHIP HIM
+MAJESTY WE WORSHIP THEE
+ 
+FOR YOU ALONE
+ARE GOD AND KING
+ 
+YOU'RE THE MASTER OF EVERYTHING
+AND SO I PRAISE YOU
+ 
+GIVE YOU GLORY
+MAJESTY
+ 
+Majesty New
+ 
+Majesty
+Majesty
+ 
+Your grace has found me just as I am
+Empty handed but alive in Your hands
+ 
+Majesty
+Majesty
+ 
+Forever I am changed by Your love
+In the presence of Your Majesty

@@ -1,0 +1,33 @@
+So many times in life before,
+I tried and tried to do things my way (hey, hey, hey)
+ 
+I thought that I was smart enough, I thought I knew enough to (handle myself)
+ 
+I didn't realize the problem was, the struggle was between my will and Yours
+ 
+So I'm giving up my will for Yours, I'm totally depending on You (please come through)
+ 
+Now when trouble comes my way, I don't cry, I just lift my eyes (to the hills)
+ 
+'Cause Your word says my help is gonna come, I'm just gon rest in what
+ 
+You say (hey, hey, hey)
+ 
+'Cause I know every word You say is true
+And every promise that You made it will come to
+ 
+So no matter how long it takes
+I'll be here still giving praise
+ 
+Waiting on my change to come
+ 
+I believe.....
+Say yeah
+ 
+I have no other choice
+but to trust You
+ 
+That's all I can do
+I have no other choice
+ 
+but to believe

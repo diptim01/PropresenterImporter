@@ -1,0 +1,2 @@
+PRAISE GOD (6X)
+AMEN!!!

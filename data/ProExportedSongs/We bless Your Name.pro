@@ -1,0 +1,6 @@
+We Bless your Name, Almighty God...
+We bow before Your Throne...
+ 
+We glorify Your Holy Name,
+Qhawe Lamaqhwawe [2x]
+(Warrior of warriors)

@@ -1,0 +1,51 @@
+Immortal, Invisible,
+God only wise
+ 
+In light inaccessible,
+Hid from our eyes
+ 
+Most Blessed
+Most Glorious
+ 
+The Ancient of Days;
+Almighty, Victorious
+ 
+Thy Great Name we praise.
+ 
+Unresting, Unhasting
+And silent as light;
+ 
+Nor wanting, nor wasting,
+Thou rulest in might.
+ 
+Thy justice, like mountains,
+High soaring above;
+ 
+Thy clouds, which are fountains
+Of goodness and love.
+ 
+To all, life Thou givest,
+To both great and small;
+ 
+In all, life Thou livest,
+The true life of all;
+ 
+We blossom and flourish
+As leaves on the tree,
+ 
+And wither and perish
+But naught changeth Thee.
+ 
+Great Father of glory,
+Pure Father of light;
+ 
+Thine angels adore Thee
+All veiling their sight.
+ 
+All praise we would render,
+O help us to see
+ 
+'Tis only the splendor
+Of light hideth Thee.
+ 
+Amen.

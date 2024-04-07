@@ -1,0 +1,19 @@
+We Are Dancing Unto The Lord...
+Dancing Halleluyah!
+ 
+We Are Waving Unto The Lord...
+Waving Halleluyah!
+ 
+We Are Jumping Unto The Lord...
+Jumping Halleluyah!
+ 
+Halleluyah!
+ 
+We Are Shouting Unto The Lord...
+Shouting Halleluyah!
+ 
+We Are Singing Unto The Lord...
+Singing Halleluyah!
+ 
+We Are Clapping Unto The Lord...
+Clapping Halleluyah!

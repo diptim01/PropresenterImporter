@@ -1,0 +1,12 @@
+BELONGS TO GOD
+ 
+TO YOU HOLY FATHER
+WE WORSHIP YOU PRECIOUS JESUS
+ 
+OUR SAVIOUR HOLY SPIRIT
+WE WAIT ON YOUFOR FIRE!!
+ 
+All Power Belongs to Jesus
+ 
+All Power Belongs To Jesus
+satan Shame Unto to You

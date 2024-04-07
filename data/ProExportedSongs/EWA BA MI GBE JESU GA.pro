@@ -1,0 +1,13 @@
+EWA BA MI GBE JESU GA....
+(Come help me lift Jesus high)
+ 
+EWA BA MI KORIN OGO O...
+(Come help me sing a song of glory)
+ 
+EWA BA MI KE HALLELUYAH...
+(Come help me shout Halleluyah)
+ 
+EWA BA MI JUBA FUN O...
+(Come help me worship HIm)
+ 
+BOW DOWN, WORSHIP

@@ -1,0 +1,7 @@
+JEHOVAH!
+YOU ARE THE MOST HIGH.
+ 
+YOU ARE THE MOST HIGH...
+YOU ARE THE MOST HIGH GOD
+ 
+You are the only living God

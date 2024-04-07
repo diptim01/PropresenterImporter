@@ -1,0 +1,10 @@
+KPO YA EBUBE DIKE
+(Call HIM warrior)
+ 
+EBUBE EBUBE EBUBE DIKE
+(Warrior)
+ 
+EBUBE DIKE
+(Warrior)
+ 
+JESUS………
